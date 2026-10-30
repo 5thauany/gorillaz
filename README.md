@@ -2,7 +2,7 @@
 
 - Home
 - Discografia
-- Criadores da banda
+- Merch
 - Personagens
 - Lore
 - Deenvolveadores
